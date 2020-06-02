@@ -1,1 +1,1 @@
-# tejashreePinky.github.io
+# TejashreeR.github.io
